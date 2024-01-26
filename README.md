@@ -13,15 +13,19 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+--> Control + Shift + m
+esc
+tab
+GIᄂΛƧ ᄃYBΣЯ™
 
-S al a m  K e n a l 🙏
 
-Search & Readme...in
+profiles.wordpress.org/GilasCyber 
 
-https://draft.blogger.com/profile/01885800787233569676
+g.dev/GilasCyber
 
-https://g.dev/M-S-S-identik-blogspot
+
+
+
 
 https://youtube.com/channel/UCflf4gAvMnce_2VWqed0IBQ
 
@@ -35,4 +39,4 @@ https://www.facebook.com/awynaibaho.7219.me
 
 https://en.wikipedia.org/wiki/User:Awy_Naibaho/sandbox
 
-www.awynaibaho.wordpress.com
+profiles.wordpress.org/gilascyber
